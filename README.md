@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá 
+I am a student and I am in the last year of high school. I'm studying English on a course and I speak Spanish, having learned Spanish by talking to a group of Spanish-speaking friends. I'm studying programming language and I intend to attend some graduation related to the technological area.
 
 
 ## 🌐 Socials:
